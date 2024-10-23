@@ -1,0 +1,1 @@
+eu sou gabi tenho 18 anos moro em cg e estudo
